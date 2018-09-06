@@ -1,2 +1,1 @@
-# gitskills
-Creating a new branch is quick & simple.
+VimCrypt~01!‡(Ê-QºãÛí”ÔiĞ®IŠ½×$}Ö³_«ö—$‚¶±4UÏÒu!_SYå/¸zë¡íq
